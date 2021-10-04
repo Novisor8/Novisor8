@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Novisor8
+- 👀 I’m interested in learning how to hack
+- 🌱 I’m currently learning how to hack
+- 💞️ I’m looking to collaborate on hacking
+- 📫 How to reach me my email is pedrajovictor@gmail.com my discrod is Shang-Chi#7691
